@@ -1,5 +1,3 @@
-I'll search for information about Aurelius's partnerships and Golden Ubuntu philosophy to create an updated profile.# **AURELIUS TECH & TALENT SOLUTIONS**
-
 🏆 **Veteran-Owned Federal Technology & Talent Partner** 🏆  
 Transforming Government Agencies Through AI Innovation, Software Excellence, and Strategic Talent Solutions
 
